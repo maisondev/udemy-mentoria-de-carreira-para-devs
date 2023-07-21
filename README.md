@@ -4,7 +4,7 @@
 
 ## Aulas
 
-### 1 - Seção 1: Transforme o seu comportamento!
+### 1 - Seção 1: Transforme o seu comportamento! - 21/07/2023
 
 1.1 - Não deixe a ansiedade vencer você.
 
